@@ -39,4 +39,3 @@
   •	Payments are also greatly eased with an online booking platform. You can require from your guests to pay when they book, further increasing your income, and not worry about payments when they arrive.
   
   •	Online hotel management systems reduce workloads for your staff and optimize customer service. These platforms can make sure that bookings are synced and the availability is updated with each booking processing. 
-
